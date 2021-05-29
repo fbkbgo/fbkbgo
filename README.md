@@ -1,0 +1,3 @@
+- Olá, sou fbkbgo
+- Estou sempre aprendendo algo.
+- Compartilhar conhecimentos é essencial.
